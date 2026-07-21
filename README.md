@@ -1,4 +1,5 @@
-<img width="3442" height="1037" alt="Без названия419_51" src="https://github.com/user-attachments/assets/8cf5acdc-bf1b-4532-b27f-2b12e6836ab1" />
+<img width="3442" height="705" alt="Без названия51" src="https://github.com/user-attachments/assets/16eac431-e8aa-46c3-8fcc-9a7da42eb4b0" />
+
 
  
 ܹ٬ ‌᮫ֺ𝆋 वूؔ𐑼̸ࣦ MitSu › Wind 𝁙ՙؙ ً afk 𑂹 ۙ  ֵ⸝̷ 
