@@ -6,5 +6,5 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
-<img width="1303" height="937" alt="Без названия418_20260721090331" src="https://github.com/user-attachments/assets/0cf8a380-0d95-4776-9146-34b9a74b3bce" />
+<img width="1303" height="887" alt="Без названия1" src="https://github.com/user-attachments/assets/34b6f2c7-cd0e-40cb-95de-a86fa21e9cac" />
 
